@@ -9,4 +9,4 @@ Links utiles de comunidades
 
 [ScrollArmy](https://scrollarmy.com.ar/)
 
-[Nerdear.la]([https://website-name.com](https://nerdear.la/en/)https://nerdear.la/en/)
+[Nerdear.la](https://website-name.com](https://nerdear.la/en/)https://nerdear.la/en/)
